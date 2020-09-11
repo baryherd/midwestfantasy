@@ -21,6 +21,8 @@ Eric’s Life has some receivers with solid floors – OBJ will get passes throw
 
 That said, there’s a few too many negatives here. The running backs have the explosiveness of a giant panda that just ate 40 pounds of bamboo. While Melvin Gordon, David Johnson and Adrian Peterson were both excellent in their primes, injuries and age have sapped them of their peak prowess.
 
+Editor's note: the David Johnson opinion aged poorly after last night.
+
 Between below average running backs and an almost complete lack of depth at WR, I expect Matt to finish with the fewest points scored in the league.
 
 **6. Angelslo Angry Anglers (Grant)**
@@ -35,6 +37,9 @@ A quarterback in Kliff Kingsbury’s offense might be able to help with that. Ky
 Running back is a problem though. Running out Raheem Mostert and following that up with David Montgomery as a top RB is a problem, and one only exacerbated by having almost no RB depth on the bench (Chris Thompson should regularly score but won’t blow anyone away). Additionally, the floor at QB is also low. Murray posted scores of 8, 8, 10, 10 and 12 in his last 5 games last year. That kind of production from such a highly drafted QB is worrisome.
 
 All told, there will probably be weeks this year where Murray and the WRs prop up the team to the tune of 70-80 points, but the floor is low enough that Grant likely will finish near the bottom of the league in points scored again.
+
+![](https://media4.giphy.com/media/iE4lKpKqwe7QIQCPjG/giphy.gif)
+
 
 **5. The Rural Juror (Roberta)**
 _2019: 788.4 Total Points (T-9th), 4-9 Record (T-11th)_
@@ -77,6 +82,8 @@ Conversely, there's a potential for issues with Dennis's QBs. Both Roethlisberge
 
 While those are concerns, there's a reason the Champs of Chapel Hill are ranked 3rd in the division - there's quality at every position here and a chance to make it back into the 3rd or 5th overall regular season standings.
 
+![](https://i.makeagif.com/media/3-29-2016/6JCSxs.gif)
+
 **2. Hold Me Closer Tony Danza (Eric)**
 _2019: 775.2 Total Points (12th), 3-10 Record (14th)_
 
@@ -105,6 +112,10 @@ With that wide receiver depth comes a lack of depth at running back though. Team
 
 All things considered, the commissioner feels really good about a return trip to the playoffs for Brian. He's an admirable drafter, shrewd manager and truly, his combined use of compassion and statistics as the league manager are without parallel.
 
+![](https://media.giphy.com/media/3o6Mbt6m0pAAYRv5kY/giphy.gif)
+
+WITHOUT PARALLEL.
+
 ## THE WINNERS DIVISION
 
 _The Winners Division is composed of the top 7 teams from last year’s league. As is usually the case, several teams from this division will return to the postseason while many others will fall from grace quickly like the Kansas City Royals or the Jacksonville Jaguars._
@@ -120,7 +131,10 @@ In its place is a 2020 team that even the real Spuds MacKenzie might growl at. W
 
 On the flip side, Matt Ryan has also finished 12th and 15th at QB in those other two years. That downside combined with running backs with low floors (the Colts announced they were planning on having Jonathan Taylor back up Marlon Mack) and this season could be a return to the bottom for Derek.
 
-While Spuds has some risk at running back and is obviously listed as the lowest amongst the Winners Division, the roster here is in the middle of the pack and in position for a wild card spot.
+While Spuds has some risk at running back and is obviously listed as the lowest amongst the Winners Division, the roster here is in the middle of the pack and in position to fire his way into the wild card race.
+
+![](https://media1.tenor.com/images/f6481d713c02a2146dbd18b3bd946507/tenor.gif)
+
 
 **6. Real Men of Genius (David)**
 _2019: 922.4 Total Points (3rd), 10-3 Record (2nd)_
