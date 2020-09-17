@@ -80,3 +80,4 @@ Michael just cruising to victory while Grant puts up his second highest score in
 
 ![](https://media.giphy.com/media/l3vR9pIzIbhmoPqrC/giphy.gif)
 
+***FANTASY FOOTBALL TIP OF THE WEEK:*** Never start your Thursday players in your flex position unless needed. This allows for more FLEXibility on Sunday and Mondau.
