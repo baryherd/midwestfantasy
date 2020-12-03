@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/60373980/101077179-16304600-356a-11eb-9299-db42fe63bb7f.png)
+
 Welcome to the final week of the 2020 regular season! We made it, thankfully. We made it. To preview the final week of the season, I'll walk through teams who have clinched playoff spots, teams still playing for a playoff spot, seeding scenarios, and draft pick scenarios for 2021. I'll also take a look at potential keepers for each team based on the current state of things.
 
 #### Favre From Retiring (Jeff) 10-2
