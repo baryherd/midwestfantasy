@@ -134,7 +134,7 @@ Michael's situation is nearly identical to Tom's but he has a lower chance of wi
 
 His most likely finishes are 9th (47%) and 6th (17%).
 
-Potential keepers: Mark Andrews (7), Benny Snell (10), Damien Harris (9)
+Potential keepers: Mark Andrews (7), Damien Harris (9)
 
 #### LUG NUT (Matt C) 5-7
 
